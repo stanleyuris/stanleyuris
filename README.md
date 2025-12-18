@@ -5,4 +5,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-github-doctorwilson&label=TMAGFMB&abbreviated=true&color=522b14)
 
 <p align="center" dir="auto">
-<a href="https://rentry.co/stupidjerk";>rentry</a> <a href="https://teddyuris.atabook.org/";>ata</a> <br><a href="https://rentry.co/tpkmuvix";>pt rules</a><br> <a href="https://rentry.co/bitemyhip";>interests</a> <a href="https://malris.straw.page/";>straw</a> 
+<a href="https://rentry.co/stupidjerk";>rentry</a> <a href="https://teddyuris.atabook.org/";>ata</a> <br><a href="https://rentry.co/tpkmuvix";>pt rules</a><br> <a href="https://rentry.co/bitemyhip";>interests</a> <a href="https://uris.straw.page/";>straw</a> 
